@@ -1,5 +1,5 @@
-- Hi, I’m @Rhdrmhdrvf - my real name is Richard Kramenstetter and I am mainly a 2d artist.
-- Unsure what I will upload here. 
+Hi, I’m @Rhdrmhdrvf - my real name is Richard Kramenstetter and I am mainly a 2d artist.
+Unsure what I will upload here. 
 - I will update this later.
 
 <!---
